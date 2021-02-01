@@ -49,7 +49,7 @@ https://sissa-it.zoom.us/j/85990386760?pwd=ZVNXZTZObGl4YXJ2cWl3aWNUWkpJZz09
 
 Meeting ID: 859 9038 6760
 
-Passcode: NSPDE
+Passcode: ask me
 
 Lectures: 
 

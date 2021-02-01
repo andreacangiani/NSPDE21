@@ -1,6 +1,8 @@
 # NSPDE21
 NSPDE course material
 
+Lecturer: Andrea Cangiani andrea.cangiani@sissa.it
+
 Course Type: SISSA PhD Course
 
 Academic Year: 2020-2021

@@ -41,30 +41,52 @@ Contents
 
 Location: 
 A-133
+
 Online: 
 https://sissa-it.zoom.us/j/85990386760?pwd=ZVNXZTZObGl4YXJ2cWl3aWNUWkpJZz09
 
 Meeting ID: 859 9038 6760
+
 Passcode: NSPDE
 
 Lectures: 
+
 Tuesday, February 2, 2021 - 11:00 to 13:00
+
 Thursday, February 4, 2021 - 11:00 to 13:00
+
 Tuesday, February 9, 2021 - 11:00 to 13:00
+
 Thursday, February 11, 2021 - 11:00 to 13:00
+
 Thursday, February 18, 2021 - 14:00 to 16:00
+
 Tuesday, February 23, 2021 - 14:00 to 16:00
+
 Thursday, February 25, 2021 - 15:00 to 17:00
+
 Tuesday, March 2, 2021 - 11:00 to 13:00
+
 Thursday, March 4, 2021 - 11:00 to 13:00
+
 Tuesday, March 9, 2021 - 11:00 to 13:00
+
 Thursday, March 11, 2021 - 11:00 to 13:00
+
 Tuesday, March 16, 2021 - 14:00 to 16:00
+
 Thursday, March 18, 2021 - 11:00 to 13:00
+
 Tuesday, March 23, 2021 - 14:00 to 16:00
+
 Thursday, March 25, 2021 - 11:00 to 13:00
+
 Tuesday, April 13, 2021 - 11:00 to 13:00
+
 Thursday, April 15, 2021 - 11:00 to 13:00
+
 Tuesday, April 20, 2021 - 11:00 to 13:00
+
 Thursday, April 22, 2021 - 11:00 to 13:00
+
 Tuesday, April 27, 2021 - 11:00 to 13:00
